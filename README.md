@@ -1,2 +1,2 @@
 # kaggle_PUBG
-for fun only
+for your fun only
